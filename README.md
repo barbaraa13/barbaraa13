@@ -9,6 +9,7 @@ Meu nome é Barbara Atanazio
 _entre em contato comigo_ 📧
 
 -atanaziob365@gmail.com.br
-@barbara_atanzioo
+
+ @barbara_atanzioo
 
 
